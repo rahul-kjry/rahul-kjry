@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently pursuing my Bachelors in Information Technology in SECE, Coimbatore<br>Interested in solving complex problems and Build Creative Applications<br>
+I'm currently pursuing my Bachelors in Information Technology in SECE, Coimbatore<br>Interested in solving complex problems and Building Creative Applications<br>
 
 
 ## 🌐 Socials:
